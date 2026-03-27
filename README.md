@@ -2,7 +2,7 @@
 
 你有沒有試過在網上找香港 VPS，結果全部清一色是大陸商家，用人民幣結算，換算過來一點都不便宜？我就有過這種煩惱。直到遇上 28HK NET，才算鬆一口氣——土生土長的香港公司，自己擁有機房，港幣報價，而且還有 2 天試用選項，讓你先試後買，完全無壓力。
 
-img width="3305" height="1607" alt="image" src="https://github.com/user-attachments/assets/13242715-0b37-4f62-9063-10f0883eefff" />
+<img width="3305" height="1607" alt="image" src="https://github.com/user-attachments/assets/13242715-0b37-4f62-9063-10f0883eefff" />
 
 ---
 
